@@ -1,0 +1,1 @@
+yatim di mari yang kopas yatim sama aaa
